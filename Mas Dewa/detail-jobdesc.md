@@ -24,3 +24,11 @@
 
 	HASIL:
 	https://www.arpateam.com/web-gratis
+
+4. [Dewa] 14 - 18 November 2022	[Hal. Daftar Harga]
+
+	BAHAN:
+	https://www.jogjasite.com/paket
+
+	HASIL:
+	https://www.arpateam.com/daftar-harga-jasa-pembuatan-website
