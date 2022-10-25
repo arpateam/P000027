@@ -50,3 +50,11 @@
 
 	HASIL:
 	https://www.arpateam.com/bantuan
+
+7. [Dewa] 12 - 16 Desember 2022	[Hal. Pembayaran]
+
+	BAHAN:
+	https://www.indowebsite.co.id/pembayaran/
+
+	HASIL:
+	https://www.arpateam.com/pembayaran
