@@ -58,3 +58,13 @@
 
 	HASIL:
 	https://www.arpateam.com/pembayaran
+
+8. [Dewa] 19 - 23 Desember 2022	[Hal. Blog]
+
+	BAHAN:
+	https://www.indowebsite.co.id/blog/
+	https://idwebhost.com/blog/
+	https://jasterweb.com/label/artikel/
+
+	HASIL:
+	https://www.arpateam.com/blog
