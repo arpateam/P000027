@@ -32,3 +32,11 @@
 
 	HASIL:
 	https://www.arpateam.com/daftar-harga-jasa-pembuatan-website
+
+5. [Dewa] 21 - 30 November 2022	[Hal. Portofolio]
+
+	BAHAN:
+	https://works.jaster.co.id/label/website/
+
+	HASIL:
+	https://www.arpateam.com/portofolio
