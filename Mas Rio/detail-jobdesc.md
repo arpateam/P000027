@@ -40,3 +40,12 @@
 
 	HASIL:
 	https://www.arpateam.com/tentang-kami
+
+6. [Rio] 01 - 10 Desember 2022	[Hal. Kontak Kami]
+
+	BAHAN:
+	https://www.indowebsite.co.id/contact/
+	https://www.niagahoster.co.id/kontak
+
+	HASIL:
+	https://www.arpateam.com/kontak-kami
