@@ -15,3 +15,12 @@
 
 	HASIL:
 	https://www.arpateam.com/penawaran
+
+3. [Rio] 01 - 11 November 2022	[Hal. Klien Kami]
+
+	BAHAN:
+	http://www.websitekeren.com/clients.html
+	https://www.datamaya.com/clients/
+
+	HASIL:
+	https://www.arpateam.com/klien-kami
