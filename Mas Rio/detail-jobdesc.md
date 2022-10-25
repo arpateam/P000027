@@ -49,3 +49,11 @@
 
 	HASIL:
 	https://www.arpateam.com/kontak-kami
+
+7. [Rio] 12 - 16 Desember 2022	[Hal. Karir]
+
+	BAHAN:
+	https://idwebhost.com/karir
+
+	HASIL:
+	https://www.arpateam.com/karir-arpateam
