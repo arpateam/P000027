@@ -65,3 +65,8 @@
 
 	HASIL:
 	https://www.arpateam.com/syarat-dan-ketentuan
+
+9. [Rio] 26 - 30 Desember 2022	[Hal. Evaluasi & Penyerahan Hasil Ke #ARPATEAM]
+
+	HASIL:
+	Hasilnya sudah diserahkan ke pihak #ARPATEAM
