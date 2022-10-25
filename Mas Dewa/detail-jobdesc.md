@@ -15,3 +15,12 @@
 
 	HASIL:
 	https://www.arpateam.com/promo-umkm
+
+3. [Dewa] 01 - 11 November 2022	[Hal. Web Gratis]
+
+	BAHAN:
+	https://www.cekotechnology.com/website-gratis/
+	https://www.indosite.com/website-masjid-gratis/
+
+	HASIL:
+	https://www.arpateam.com/web-gratis
