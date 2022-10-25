@@ -40,3 +40,13 @@
 
 	HASIL:
 	https://www.arpateam.com/portofolio
+
+6. [Dewa] 01 - 10 Desember 2022	[Hal. Bantuan]
+
+	BAHAN:
+	https://www.indowebsite.co.id/support/
+	https://www.jogjamediaweb.com/faq-jogja-media-web-jasa-pembuatan-web-terpercaya-di-jogja.html
+	https://solusidigital.co.id/faq/
+
+	HASIL:
+	https://www.arpateam.com/bantuan
