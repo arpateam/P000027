@@ -57,3 +57,11 @@
 
 	HASIL:
 	https://www.arpateam.com/karir-arpateam
+
+8. [Rio] 19 - 23 Desember 2022	[Hal. Syarat & Ketentuan]
+
+	BAHAN:
+	https://www.niagahoster.co.id/syarat-dan-ketentuan
+
+	HASIL:
+	https://www.arpateam.com/syarat-dan-ketentuan
