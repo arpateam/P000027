@@ -24,3 +24,11 @@
 
 	HASIL:
 	https://www.arpateam.com/klien-kami
+
+4. [Rio] 14 - 18 November 2022	[Hal. Kerja Sama]
+
+	BAHAN:
+	https://solusidigital.co.id/penawaran/
+
+	HASIL:
+	https://www.arpateam.com/kerja-sama
